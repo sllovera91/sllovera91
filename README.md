@@ -4,5 +4,4 @@
 - 💞️ Me gustaria poder desarrollarme en alguna empresa o colaborar con algun proyecto, entre otras cosas, estoy en el mundo crypto desde 2018 y tambien me apasiona!- 
 - 📫 Puedes contactarme a sllovera91@hotmail.com, suelo responder rapido. Quisiera contar con una oportunidad, me desempeñe en la industria financiera y trabaje en startups, siempre aportando lo mejor de mi.
 
-- https://www.linkedin.com/in/santiago-llovera-6841931a2/
 
